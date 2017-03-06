@@ -1,4 +1,4 @@
-A friendly co-worker that you don't really know anything about ask you to help him move, when you show up to his house it's completely empty apart from a single box and his no where to be seen.
+**A friendly co-worker that you don't really know anything about ask you to help him move, when you show up to his house it's completely empty apart from a single box and his no where to be seen.**
 
 [Link](https://www.reddit.com/r/WritingPrompts/comments/5xn2ht/wp_a_friendly_coworker_that_you_dont_really_know/)
 

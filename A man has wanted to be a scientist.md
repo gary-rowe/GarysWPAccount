@@ -1,4 +1,4 @@
-A man has wanted to be a scientist his whole life. He spent years developing the mannerisms, speech patterns and wardrobe of an eccentric genius. He gets a job interview but forgot to learn one thing, science.
+**A man has wanted to be a scientist his whole life. He spent years developing the mannerisms, speech patterns and wardrobe of an eccentric genius. He gets a job interview but forgot to learn one thing, science.**
 
 [Link](https://www.reddit.com/r/WritingPrompts/comments/5xo28e/wp_a_man_has_wanted_to_be_a_scientist_his_whole/)
 

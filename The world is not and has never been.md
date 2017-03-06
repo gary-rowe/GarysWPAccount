@@ -1,4 +1,4 @@
-The world is not, and has never been what it seems. The truth is so dark and horrid it can drive whomever knows it, including our narrator, mad. No Lovecraftian stuff
+**The world is not, and has never been what it seems. The truth is so dark and horrid it can drive whomever knows it, including our narrator, mad. No Lovecraftian stuff**
 
 [Link](https://www.reddit.com/r/WritingPrompts/comments/5xoe18/wp_the_world_is_not_and_has_never_been_what_it/)
 
