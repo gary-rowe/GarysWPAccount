@@ -1,4 +1,4 @@
-# []GarysWPAccount](https://www.reddit.com/u/GarysWPAccount)
+# [GarysWPAccount](https://www.reddit.com/u/GarysWPAccount)
 
 I enjoy writing in my spare time and the [Writing Prompts](https://www.reddit.com/r/WritingPrompts) subreddit 
 provides me with plenty of material to keep my imagination working and my communication skills sharp.
