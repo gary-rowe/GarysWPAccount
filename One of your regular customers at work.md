@@ -1,8 +1,8 @@
-[WP] One of your regular customers at work is plotting to kill you. Other customers have become aware of the situation and are now dropping cryptic hints to alert you to this situation.Writing Prompt
+One of your regular customers at work is plotting to kill you. Other customers have become aware of the situation and are now dropping cryptic hints to alert you to this situation.Writing Prompt
 
-https://www.reddit.com/r/WritingPrompts/comments/5wmcf5/wp_one_of_your_regular_customers_at_work_is/
+[Link](https://www.reddit.com/r/WritingPrompts/comments/5wmcf5/wp_one_of_your_regular_customers_at_work_is/)
 
----------
+---
 
 "Ever heard of The Continental, Ted?"
 
