@@ -20,9 +20,9 @@ I recall a narrow corridor which opened into a colossal cavern the like of which
 
 *My space. My twisted space. Only a small price to pay to see it.*
 
-My companion, a young man by the name of Nigel Aldershot, explained that they had been performing geophysical operations in the region when the instruments started to show certain anomalies. Suspecting problems with the equipment they recalibrated and carefully tested but the results came back the same. Somehow there was a vast space, far too large to be a natural occurance, three miles below the ice. After convincing their sponsors that it was worth investigating the military became involved and the project became shrouded in secrecy.
+My companion, a young man by the name of Nigel Aldershot, explained that they had been performing geophysical operations in the region when the instruments started to show certain anomalies. Suspecting problems with the equipment they recalibrated and carefully tested but the results came back the same. Somehow there was a vast space, far too large to be a natural occurrence, three miles below the ice. After convincing their sponsors that it was worth investigating the military became involved and the project became shrouded in secrecy.
 
-*Sssss. I am Gaia's parasite and you thought me pretty.*
+*I called to you and you came to me.*
 
 Apparently the European team had ventured out over the sea but had not had sufficient fuel to reach the far side so turned back with plans to prepare a larger mission. I gave my team permission to assist them and after a week or so of preparation we were confident that we would make it to the horizon and return within a day.
 
@@ -32,4 +32,10 @@ Well, what happened next is well documented, although still rightly shrouded in 
 
 *No-one can gaze upon my beauty and forget me. I leave my mark.*
 
-I asked Nigel what had happened and I will never forget his words. 
+I asked Nigel what had happened and I will never forget his words. Over the horizon was a low island, entirely 
+desolate with one exception: a single glowing crater filled with the most beautiful light. That was the second sun. 
+Coruscating patterns of multi-coloured light moved over the surface and descended into its depths. It was like 
+looking at the aurora borealis brought down to earth. 
+
+*Sssss. I am Gaia's parasite and you thought me pretty.*
+
